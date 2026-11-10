@@ -15,3 +15,14 @@ Photos from Wikimedia Commons, used under their Creative Commons licences. Each 
 - https://commons.wikimedia.org/wiki/File:Rudranaath_Pandavas_Temples.jpg
 - https://commons.wikimedia.org/wiki/File:Gopinath_Mandir_,_Gopeshwar_Chamoli.jpg
 - https://commons.wikimedia.org/wiki/File:Panar_Bugyal...on_way_to_Rudranath.jpg
+
+## Part 4 Madhyamaheshwar
+Wikimedia Commons (Creative Commons licences; see each file page). Plus Unsplash: Tanuj Dulam (temple complex) and Kuldeep Kumar (Omkareshwar, Ukhimath).
+
+- https://commons.wikimedia.org/wiki/File:Madhyamaheshwar_Temple,_Uttarakhand.JPG
+- https://commons.wikimedia.org/wiki/File:Madhyamaheshwar_Temple_and_Mandir_Seva_Samiti_Guest_House_photo_by_Sumita_Roy.jpg
+- https://commons.wikimedia.org/wiki/File:Madhmaheshwar,_Uttarakhand,_India.jpg
+- https://commons.wikimedia.org/wiki/File:Temples_of_Hara-Parvati_and_Parvati_behind_Madhyamaheshwar_Temple.JPG
+- https://commons.wikimedia.org/wiki/File:Madhyamaheshwar_village.JPG
+- https://commons.wikimedia.org/wiki/File:Majestic_Chaukhamba_at_Boodha_Madhyamaheshwar.jpg
+- https://commons.wikimedia.org/wiki/File:Mt_Mandani_and_Chaukhamba_with_reflection_at_Boodha_Madhyamaheshwar_3500m_Photo_by_Sumita_Roy.jpg
