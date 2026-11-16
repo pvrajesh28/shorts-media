@@ -24,3 +24,15 @@ Photos from Wikimedia Commons, used under their Creative Commons licences. Each 
 - https://commons.wikimedia.org/wiki/File:Jatayu_Earth’s_Center,_January_2020_01.jpg
 - https://commons.wikimedia.org/wiki/File:Jatayu_Earth's_Center_Temple.jpg
 - https://commons.wikimedia.org/wiki/File:Jatayu_(1)_03.jpg (BinoBose)
+
+## Shore Temple, Mahabalipuram — the temple that survived a tsunami
+Photos from Wikimedia Commons, used under their Creative Commons licences. Each file page lists the author and licence.
+
+- https://commons.wikimedia.org/wiki/File:Shore_temple_Mahabalipuram.jpg
+- https://commons.wikimedia.org/wiki/File:Mahabalipuram_Shore_Temple_4.jpg
+- https://commons.wikimedia.org/wiki/File:The_shore_temple_mahabalipuram_best_view.jpg
+- https://commons.wikimedia.org/wiki/File:The_Shore_Temple_-_Mahabalipuram,_Tamil_Nadu_-_India._ASI_monument_number_N-TN-C55..jpg (Somasakshini)
+- https://commons.wikimedia.org/wiki/File:Garbagriha_Saluvankuppam_temple.jpg (Ravichandar84)
+- https://commons.wikimedia.org/wiki/File:Mahabalipuram_Shore_Temple_7.jpg
+- https://commons.wikimedia.org/wiki/File:Mahabalipuram_-_Shore_Temple.jpg (Anandavinash)
+- https://commons.wikimedia.org/wiki/File:Shore_Temple-Mahabalipuram.jpg
