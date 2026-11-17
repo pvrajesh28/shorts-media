@@ -36,3 +36,11 @@ Photos from Wikimedia Commons, used under their Creative Commons licences. Each 
 - https://commons.wikimedia.org/wiki/File:Mahabalipuram_Shore_Temple_7.jpg
 - https://commons.wikimedia.org/wiki/File:Mahabalipuram_-_Shore_Temple.jpg (Anandavinash)
 - https://commons.wikimedia.org/wiki/File:Shore_Temple-Mahabalipuram.jpg
+
+## Srirangam — the idol that refused to move
+Photos from Wikimedia Commons, used under their Creative Commons licences. Each file page lists the author and licence. Animation, narration and music made by Tales Through Time.
+
+- https://commons.wikimedia.org/wiki/File:Srirangam_gopuram.jpg (Nagarjun Kandukuru, via Flickr)
+- https://commons.wikimedia.org/wiki/File:Rock_fort.jpg
+- https://commons.wikimedia.org/wiki/File:Srirangam_Temple_Gopuram_View.jpg (Writer hit, CC BY-SA 4.0)
+- https://commons.wikimedia.org/wiki/File:Srirangam_rajagopuram.jpg (Ssriram mt)
