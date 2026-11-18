@@ -44,3 +44,12 @@ Photos from Wikimedia Commons, used under their Creative Commons licences. Each 
 - https://commons.wikimedia.org/wiki/File:Rock_fort.jpg
 - https://commons.wikimedia.org/wiki/File:Srirangam_Temple_Gopuram_View.jpg (Writer hit, CC BY-SA 4.0)
 - https://commons.wikimedia.org/wiki/File:Srirangam_rajagopuram.jpg (Ssriram mt)
+
+## Srisailam — the temple of humming bees
+Photos from Wikimedia Commons, used under their Creative Commons licences. Each file page lists the author and licence. Animation, narration and music made by Tales Through Time.
+
+- https://commons.wikimedia.org/wiki/File:Night_view_of_Srisailam_Temple_South_Gopuram.jpg (Adityamadhav83)
+- https://commons.wikimedia.org/wiki/File:2025_West_Gopuram_behind_Bhramaramba_temple_in_Srisailam.jpg
+- https://commons.wikimedia.org/wiki/File:Krishna_river(Srisailam_Dam).jpg
+- https://commons.wikimedia.org/wiki/File:Gopuram_of_Mallikarjuna_Devasthanam,_SriSailam.jpeg (Guguly18)
+- https://commons.wikimedia.org/wiki/File:APSS303_Srisailam_town_zoom_view_from_welcome_center2.jpg (VasuVR)
