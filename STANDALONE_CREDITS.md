@@ -53,3 +53,9 @@ Photos from Wikimedia Commons, used under their Creative Commons licences. Each 
 - https://commons.wikimedia.org/wiki/File:Krishna_river(Srisailam_Dam).jpg
 - https://commons.wikimedia.org/wiki/File:Gopuram_of_Mallikarjuna_Devasthanam,_SriSailam.jpeg (Guguly18)
 - https://commons.wikimedia.org/wiki/File:APSS303_Srisailam_town_zoom_view_from_welcome_center2.jpg (VasuVR)
+
+## Puri Jagannath — why the idols have no hands or feet (animated)
+Animation, narration and music made by Tales Through Time. Photos from Wikimedia Commons, used under their Creative Commons licences; each file page lists the author and licence.
+
+- https://commons.wikimedia.org/wiki/File:Jagannath_Temple_Puri.jpg
+- https://commons.wikimedia.org/wiki/File:Rath_Yatra_Puri_07-11027.jpg (G.-U. Tolkiehn)
