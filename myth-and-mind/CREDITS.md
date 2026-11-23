@@ -21,3 +21,9 @@ Animation, narration (Kokoro TTS) and music made by Myth & Mind. Images from Wik
 
 - https://commons.wikimedia.org/wiki/File:MRI_of_Human_Brain.jpg (7 T MRI of a healthy brain, by Asnaebsa)
 - https://commons.wikimedia.org/wiki/File:SumaLateral_Whole_Brain_Image_(23682213069).jpg (whole-brain fMRI rendering, NIMH, via Flickr)
+
+## Do Goldfish Have a 3-Second Memory? (goldfish-memory-myth.mp4)
+Animation, narration (Kokoro TTS) and music made by Myth & Mind. Photos from Wikimedia Commons; see each file page for author and licence.
+
+- https://commons.wikimedia.org/wiki/File:Carassius_auratus_auratus_(goldfish)_1.jpg (Lake Superior Aquarium, Duluth; via Flickr)
+- https://commons.wikimedia.org/wiki/File:(Carassius_auratus)_Gold_fish_at_meenalokam_aquarium_01.JPG (Adityamadhav83; Meenalokam aquarium, Visakhapatnam)
