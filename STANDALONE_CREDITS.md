@@ -59,3 +59,21 @@ Animation, narration and music made by Tales Through Time. Photos from Wikimedia
 
 - https://commons.wikimedia.org/wiki/File:Jagannath_Temple_Puri.jpg
 - https://commons.wikimedia.org/wiki/File:Rath_Yatra_Puri_07-11027.jpg (G.-U. Tolkiehn)
+
+## Kailasa Temple, Ellora — carved from one rock (kailasa-temple-animated.mp4)
+Animation, narration and music made by Tales Through Time. Photos from Wikimedia Commons, used under their Creative Commons licences; each file page lists the author and licence.
+
+- https://commons.wikimedia.org/wiki/File:Ellora_Kailasanatha_temple.jpg (BhajishB)
+- https://commons.wikimedia.org/wiki/File:Kailasa_temple_Ellora.jpg (Rajesh Rane)
+- https://commons.wikimedia.org/wiki/File:Kailash_Temple,_Ellora_(4242684153).jpg (Kunal Mukherjee)
+- https://commons.wikimedia.org/wiki/File:Kailasa_Temple_at_Ellora_(Cave_16).jpg
+- https://commons.wikimedia.org/wiki/File:Kailasha_temple_at_ellora.JPG
+
+## Konark Sun Temple — the stone clock (konark-sun-temple-animated.mp4)
+Animation, narration and music made by Tales Through Time. Photos from Wikimedia Commons, used under their Creative Commons licences; each file page lists the author and licence.
+
+- https://commons.wikimedia.org/wiki/File:Sun_Temple_at_Konark.jpg
+- https://commons.wikimedia.org/wiki/File:Stone_wheel_engraved_in_the_13th_century_built_Konark_Sun_Temple_in_Orissa,_India.jpg
+- https://commons.wikimedia.org/wiki/File:KONARK_SUN_Temple.jpg
+- https://commons.wikimedia.org/wiki/File:Remnants_of_Chariot_Horses_at_Konark_Sun_Temple.jpg (Souvik Burman)
+- https://commons.wikimedia.org/wiki/File:Sun_Temple_at_Konark,_Odisha,_India.JPG (Antoniraj)
